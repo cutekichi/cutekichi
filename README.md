@@ -1,5 +1,5 @@
  # **Koko** / Kichi
-# ᡕᠵデᡁ᠊╾━
+
 
 MY FUCKCIGN DISOXRDS ACOCUNT IS DISABLED
 
