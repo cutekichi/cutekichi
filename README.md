@@ -5,5 +5,5 @@
 
 [kokicheeks](https://kokicheeks.straw.page/)
 
-$\color{red}{\textsf{[kokicheeks]}}$
+$\color{red}{\textsf{(https://kokicheeks.straw.page/)}}$
 
