@@ -1,4 +1,8 @@
  # **Koko** / Kichi
 
 
-![Ebola_chan_el_virus_caguai_png_by_sirblazepercival-d82fkym](https://github.com/user-attachments/assets/884be57f-14c3-486a-bd1e-98a7049e1e91) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31joi4uipxf45lruejf4gnqemqf4&cover_image=true&theme=default&show_offline=false&background_color=251335&interchange=true&profanity=false&bar_color=633592&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31joi4uipxf45lruejf4gnqemqf4&cover_image=true&theme=default&show_offline=false&background_color=251335&interchange=true&profanity=false&bar_color=633592&bar_color_cover=false">
+  </a>
+</p>
