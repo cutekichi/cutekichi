@@ -8,3 +8,4 @@
 
 
 FUUUUUUUUUCK CODING DUDE
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&width={width})
