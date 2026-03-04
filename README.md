@@ -14,4 +14,9 @@ $\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀saioum
 
 [strawp](https://kokicheeks.straw.page/) ⌢⌢ [prns](https://en.pronouns.page/@cutekichi) ⌢⌢ [ata](https://foxkichi.atabook.org/)
 
+
+$\color{rgba(186, 125, 255, 0.93)}{\textsf{PLEASE COME UP TO ME!!! I am friendly i swear. Usually offtab so W2I!!}}$
+
+$\color{rgba(186, 125, 255, 0.93)}{\textsf{Ships are okay!!! oumeno DNIIII...}}$ 
+
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
