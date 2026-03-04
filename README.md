@@ -7,7 +7,7 @@
 
 
 
-$\color{rgba(89, 46, 139, 0.93)}{\textsf{Kokichi / Bonkichi kinnie/IRL!!}}$
+$\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Kokichi / Bonkichi kinnie/IRL!! ᰋ }}$
 
 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
