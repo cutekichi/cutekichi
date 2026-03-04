@@ -14,11 +14,20 @@ $\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀saioum
 
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/Kuro yume!! SOMEWHAT Kokichi, doubles are ok!! ᰋ }}$
 
+<p align="center">
+<img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
+
 [strawp](https://kokicheeks.straw.page/) ⌢⌢ [prns](https://en.pronouns.page/@cutekichi) ⌢⌢ [ata](https://foxkichi.atabook.org/)
 
+<p align="center">
+<img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
+ 
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{PLEASE COME UP TO ME!!! I am friendly i swear. Usually offtab so W2I!!}}$
 
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{Ships are okay!!! oumeno DNIIII...}}$ 
 
+<p align="center">
+<img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
+ 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
