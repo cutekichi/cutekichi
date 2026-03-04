@@ -17,8 +17,7 @@ $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
  
-<p align="center">
-[strawp](https://kokicheeks.straw.page/) ⌢⌢ [prns](https://en.pronouns.page/@cutekichi) ⌢⌢ [ata](https://foxkichi.atabook.org/)
+  [strawp](https://kokicheeks.straw.page/) ⌢⌢ [prns](https://en.pronouns.page/@cutekichi) ⌢⌢ [ata](https://foxkichi.atabook.org/)
 
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
