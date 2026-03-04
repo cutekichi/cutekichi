@@ -17,7 +17,7 @@ $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
  <p align="center">
-  (https://kokicheeks.straw.page/ ⌢⌢ https://en.pronouns.page/@cutekichi ⌢⌢ https://foxkichi.atabook.org/
+  https://kokicheeks.straw.page/ ⌢⌢ https://en.pronouns.page/@cutekichi ⌢⌢ https://foxkichi.atabook.org/
 
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
@@ -29,5 +29,5 @@ $\color{rgba(186, 125, 255, 0.93)}{\textsf{Ships are okay!!! oumeno DNIIII...}}$
 
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
- <p align="center">
+
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
