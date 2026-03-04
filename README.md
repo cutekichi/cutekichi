@@ -5,7 +5,7 @@
 
 
 <p align="center">
-<img width="460" height="300" src="(https://pixelsafari.neocities.org/dividers/checkers.gif)" >
+<img width="460" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
 
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Kokichi/Bonkichi kinnie/IRL!! ᰋ }}$
