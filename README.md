@@ -9,9 +9,9 @@
 
 <p align="center">
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Kokichi/Bonkichi kinnie/IRL!! doubles are ok! ᰋ }}$
-
+<p align="center">
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀saiouma, kagebon, oumami, kurobon my beloved 𖹭  ˎˊ˗}}$
-
+<p align="center">
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/Kuro yume!! SOMEWHAT Kokichi, doubles are ok!! ᰋ }}$
 
 <p align="center">
