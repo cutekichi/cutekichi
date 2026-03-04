@@ -7,7 +7,7 @@
 
 
 
-FUUUUUUUUUCK CODING DUDE
+$\color{rgba(89, 46, 139, 0.93)}{\textsf{Kokichi / Bonkichi kinnie/IRL!!}}$
 
 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
