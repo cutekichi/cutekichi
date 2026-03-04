@@ -7,7 +7,7 @@
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
-
+<p align="center">
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Kokichi/Bonkichi kinnie/IRL!! doubles are ok! ᰋ }}$
 
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀saiouma, kagebon, oumami, kurobon my beloved 𖹭  ˎˊ˗}}$
