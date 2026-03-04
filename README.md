@@ -26,7 +26,8 @@ $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{PLEASE COME UP TO ME!!! I am friendly i swear. Usually offtab so W2I!!}}$
 <p align="center">
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{Ships are okay!!! oumeno DNIIII...}}$ 
-
+ <p align="center">
+$\color{rgba(186, 125, 255, 0.93)}{\textsf{I enjoy roleplaying, even if i dont do it often}}$ 
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
