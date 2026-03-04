@@ -9,7 +9,7 @@
 
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Kokichi/Bonkichi kinnie/IRL!! ᰋ }}$
 
-$\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀Saiouma my beloved 𖹭  ˎˊ˗}}$
-
+$\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀saiouma, kagebon my beloved 𖹭  ˎˊ˗}}$
+[strawp](https://kokicheeks.straw.page/) [prns](https://en.pronouns.page/@cutekichi) [ata](https://foxkichi.atabook.org/)
 
 ![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
