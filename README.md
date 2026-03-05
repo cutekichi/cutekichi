@@ -23,7 +23,7 @@ $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
  <p align="center">
-$\color{rgba(186, 125, 255, 0.93)}{\textsf{PLEASE COME UP TO ME!!! I am friendly i swear. Usually offtab so W2I!!}}$
+$\color{rgba(186, 125, 255, 0.93)}{\textsf{PLEASE COME UP TO ME!!! I am friendly i swear. Usually offtab so W2I!! though i may not reply in time or see your message..}}$
 <p align="center">
 $\color{rgba(186, 125, 255, 0.93)}{\textsf{Ships are okay!!! oumeno DNIIII...}}$ 
  <p align="center">
