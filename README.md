@@ -17,8 +17,13 @@ $\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
-  ⏔⏔⏔ [strawp](https://kokicheeks.straw.page/) ゛ ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ゛ ⸝⸝ [ata](https://foxkichi.atabook.org/) ゛ ⸝⸝ [spoti](https://open.spotify.com/user/31joi4uipxf45lruejf4gnqemqf4?si=dade58a3648040df) ゛ ⸝⸝ [lastfm](https://www.last.fm/user/Kyle_izcool) ゛ ⸝⸝ [tiktok](https://www.tiktok.com/@cute.kichi) ゛ ⸝⸝ [spaceh](https://spacehey.com/pupkichi) ⏔⏔⏔     
+IMPORTANT LINKS!!! read.
 
+  ⏔⏔⏔ [strawp](https://kokicheeks.straw.page/) ゛ ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ゛ ⸝⸝ [carrd](https://pupkichii.carrd.co) ⏔⏔⏔     
+
+others links
+
+[ata](https://foxkichi.atabook.org/) ゛ ⸝⸝ [spoti](https://open.spotify.com/user/31joi4uipxf45lruejf4gnqemqf4?si=dade58a3648040df) ゛ ⸝⸝ [lastfm](https://www.last.fm/user/Kyle_izcool) ゛ ⸝⸝ [tiktok](https://www.tiktok.com/@cute.kichi) ゛ ⸝⸝ [spaceh](https://spacehey.com/pupkichi)
 <p align="center">
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
