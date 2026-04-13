@@ -8,34 +8,4 @@
 <img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
 
 <p align="center">
-$\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Kokichi/Bonkichi kinnie/IRL!! doubles are ok! ᰋ }}$
-<p align="center">
-$\color{rgba(186, 125, 255, 0.93)}{\textsf{﹒  ◠   𖹭             ⠀saiouma, kagebon, oumami, kurobon my beloved 𖹭  ˎˊ˗}}$
-<p align="center">
-$\color{rgba(89, 46, 139, 0.93)}{\textsf{೯⠀⁺ ⠀Shuichi/Kagehara, Rantaro/Kuro yume!! SOMEWHAT Kokichi, doubles are ok!! ᰋ }}$
-
-<p align="center">
-<img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
-
-IMPORTANT LINKS!!! read.
-
-  ⏔⏔⏔ [strawp](https://kokicheeks.straw.page/) ︵‿୨ᰔ୧‿︵ [prns](https://en.pronouns.page/@cutekichi) ︵‿୨ᰔ୧‿︵ [carrd](https://pupkichii.carrd.co) ⏔⏔⏔     
-
-others links
-
-[ata](https://foxkichi.atabook.org/) ︵‿୨ᰔ୧‿︵ [spoti](https://open.spotify.com/user/31joi4uipxf45lruejf4gnqemqf4?si=dade58a3648040df) ︵‿୨ᰔ୧‿︵ [lastfm](https://www.last.fm/user/Kyle_izcool) ︵‿୨ᰔ୧‿︵ [tiktok](https://www.tiktok.com/@cute.kichi) ︵‿୨ᰔ୧‿︵ [spaceh](https://spacehey.com/pupkichi)
-
-
-<p align="center">
-<img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
-
- <p align="center">
-$\color{rgba(186, 125, 255, 0.93)}{\textsf{PLEASE COME UP TO ME!!! I am friendly i swear. Usually offtab so W2I!! though i may not reply in time or see your message..}}$
-<p align="center">
-$\color{rgba(186, 125, 255, 0.93)}{\textsf{Ships are okay!!! oumeno DNIIII...}}$ 
- <p align="center">
-$\color{rgba(186, 125, 255, 0.93)}{\textsf{i dont do it often but i do enjoy roleplaying!!! (IT HIGHLEY DEPENDS THOUGH...)}}$ 
-<p align="center">
-<img width="500" height="300" src="https://i.postimg.cc/XY7f2DcK/image_2024_05_24_003112596.png" >
-
-![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=31joi4uipxf45lruejf4gnqemqf4&)
+$\color{rgba(89, 46, 139, 0.93)}{\textsf{remaking this!}}$
