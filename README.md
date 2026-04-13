@@ -5,7 +5,7 @@
 
 
 <p align="center">
-<img width="500" height="300" src="https://dividers.crd.co/assets/images/gallery04/89fa3efc.png?v=05d33f91" >
+<img width="500" height="300" src="https://64.media.tumblr.com/b66f3e53832bf093d68483a55eb1c3cb/657171b7ea876107-67/s400x600/40507039fdd3974f9402fa8211a5043a879f11ce.pnj" >
 
 <p align="center">
 $\color{rgba(89, 46, 139, 0.93)}{\textsf{remaking this!}}$
