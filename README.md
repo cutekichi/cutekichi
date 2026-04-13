@@ -8,7 +8,7 @@
 <img width="500" height="300" src="https://64.media.tumblr.com/b66f3e53832bf093d68483a55eb1c3cb/657171b7ea876107-67/s400x600/40507039fdd3974f9402fa8211a5043a879f11ce.pnj" >
 
 <p align="center">
-$\color{rgba(227, 217, 239, 0)}{\textsf{remaking this!}}$
+$\color{rgba(229, 215, 247, 0)}{\textsf{remaking this!}}$
 
 
 
