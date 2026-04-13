@@ -1,7 +1,8 @@
- # **Koko** / Kichi
+ # 
 
 <p align="center">
-<img width="460" height="300" src="https://i.pinimg.com/736x/fc/0b/7a/fc0b7a8daeca9d1ab29c5abefc89464f.jpg" >
+<img width="460" height="300" src="![b6b6370d2509b8939a956d96eff2af28](https://github.com/user-attachments/assets/b2845084-0d87-4234-987d-d6c8ea793f00)
+" >
 
 
 <p align="center">
