@@ -15,7 +15,7 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{remakinf this}}$
 
 <div align="center">
 
-[strawp]((https://milkichi.straw.page)
+[strawp](https://milkichi.straw.page)
 
 </div>
 
