@@ -12,7 +12,7 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
 
 <div align="center">
 
-[strawp](https://milkichi.straw.page) [prns](https://en.pronouns.page/@cutekichi) [carrd](https://pupkichii.carrd.co/)
+୭˚. 𓂃 [strawp](https://milkichi.straw.page) ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [carrd](https://pupkichii.carrd.co/) .ᐟ.ᐟ
 </div>
 
 
