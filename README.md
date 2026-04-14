@@ -9,15 +9,13 @@
 
 <p align="center">
 $\color{rgba(214, 185, 255, 0.72)}{\textsf{remakinf this}}$
-<p align="center">
-  <a href="(https://milkichi.straw.page)">strawp</a>
-</p>
-[stawpa](https://milkichi.straw.page)
+
+
 
 
 <div align="center">
 
-[Your Markdown Link]((https://milkichi.straw.page))
+[strawp]((https://milkichi.straw.page)
 
 </div>
 
