@@ -8,14 +8,15 @@
 <img width="500" height="300" src="https://64.media.tumblr.com/b66f3e53832bf093d68483a55eb1c3cb/657171b7ea876107-67/s400x600/40507039fdd3974f9402fa8211a5043a879f11ce.pnj" >
 
 <p align="center">
-$\color{rgba(214, 185, 255, 0.72)}{\textsf{remakinf this}}$
-
-
-
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
 
 <div align="center">
 
 [strawp](https://milkichi.straw.page)
 
 </div>
+<div align="center">
 
+[strawp](https://en.pronouns.page/@cutekichi)
+
+</div>
