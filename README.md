@@ -13,10 +13,9 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
 <div align="center">
 
 [strawp](https://milkichi.straw.page)
-
 </div>
 <div align="center">
 
-[strawp](https://en.pronouns.page/@cutekichi)
+[prns](https://en.pronouns.page/@cutekichi)
 
 </div>
