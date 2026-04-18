@@ -25,6 +25,6 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{Kokichi and Bonkichi IRL/kinnie}}$
  Shuichi/Kagehara , Rantaro/Kuro yume!!
  
 <p align="center">
-W21 ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!! ^^ . . . ships can interact, oumeno dni.
+W21 ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!! ^^  ships can interact, oumeno dni.
 
 
