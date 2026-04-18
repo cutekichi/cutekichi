@@ -16,5 +16,6 @@
 <p align="center">
 $\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
 
+ ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
 
 
