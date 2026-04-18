@@ -30,5 +30,6 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{Shuichi/Kagehara , Rantaro/Kuro yume!
 <p align="center">
 $\color{rgba(214, 185, 255, 0.72)}{\textsf{W21 ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!!}}$
 <p align="center">
- ships can interact, oumeno dni.
- 
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{ships can interact, oumeno dni.}}$
+<p align="center">
+<img width="500" height="50" alt="image" src="http://i748.photobucket.com/albums/xx122/luuuh/divisorias/barinhas29.gif" />
