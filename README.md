@@ -28,7 +28,7 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{Shuichi/Kagehara , Rantaro/Kuro yume!
  ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
  
 <p align="center">
-$\color{rgba(214, 185, 255, 0.72)}{\textsf{W21 ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!!}}$
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{W2I ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!!}}$
 <p align="center">
 $\color{rgba(214, 185, 255, 0.72)}{\textsf{ships can interact, oumeno dni.}}$
 <p align="center">
