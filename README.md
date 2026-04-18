@@ -24,6 +24,7 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{Kokichi and Bonkichi IRL/kinnie}}$
 <p align="center">
  Shuichi/Kagehara , Rantaro/Kuro yume!!
 
+<p align="center">
  ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
  
 <p align="center">
