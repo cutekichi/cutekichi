@@ -22,7 +22,7 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
 <p align="center">
 $\color{rgba(214, 185, 255, 0.72)}{\textsf{Kokichi and Bonkichi IRL/kinnie}}$
 <p align="center">
- Shuichi/Kagehara , Rantaro/Kuro yume!!
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{Shuichi/Kagehara , Rantaro/Kuro yume!!}}$
 
 <p align="center">
  ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
@@ -32,5 +32,3 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{W21 ALWAYS!!! i am usually offtab so 
 <p align="center">
  ships can interact, oumeno dni.
  
-<p align="center">
-NO copying. inspo is okay as long as it isn't too heavy. 
