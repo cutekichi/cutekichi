@@ -28,7 +28,9 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{Kokichi and Bonkichi IRL/kinnie}}$
  ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
  
 <p align="center">
-$\color{rgba(214, 185, 255, 0.72)}{\textsf{W21 ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!! ships can interact, oumeno dni.}}$
-
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{W21 ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!!}}$
+<p align="center">
+ ships can interact, oumeno dni.
+ 
 <p align="center">
 NO copying. inspo is okay as long as it isn't too heavy. 
