@@ -20,7 +20,7 @@ $\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
  ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
 
 <p align="center">
-$\color{rgba(214, 185, 255, 0.72)}{\textsf{Kokichi & Bonkichi IRL/kinnie}}$
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{Kokichi and Bonkichi IRL/kinnie}}$
 Shuichi/Kagehara , Rantaro/Kuro yume!!
  
 <p align="center">
