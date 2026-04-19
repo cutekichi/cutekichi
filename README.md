@@ -8,13 +8,12 @@
 
 <div align="center">
 
-୭˚. 𓂃 [strawp](https://milkichi.straw.page) ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [carrd](https://pupkichii.carrd.co/) .ᐟ.ᐟ
+୭˚. 𓂃 [strawp](https://milkichi.straw.page) ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [carrd](https://pupkichii.carrd.co/) ⸝⸝ [ata](https://foxkichi.atabook.org/) .ᐟ.ᐟ
 </div>
 
 
 
-<p align="center">
-$\color{rgba(214, 185, 255, 0.72)}{\textsf{important links!! please read}}$
+
 
 <p align="center">
  ⏔⏔⏔ ꒰ ꒰ঌ·ෆ·໒꒱ ꒱ ⏔⏔⏔
