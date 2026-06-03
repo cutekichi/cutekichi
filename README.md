@@ -1,8 +1,8 @@
  # ᐡ ᐧ ﻌ ᐧ ᐡ
 
 <p align="center">
-<img width="457" height="329" alt="image" src="<img width="594" height="420" alt="05bf0d9d4cc72606f2f751a6e52bf7a3-removebg-preview" src="https://github.com/user-attachments/assets/61580e85-8f5c-40b7-9a7a-071a00669343" />
-" />
+height="420" alt="05bf0d9d4cc72606f2f751a6e52bf7a3-removebg-preview" src="https://github.com/user-attachments/assets/61580e85-8f5c-40b7-9a7a-071a00669343
+
 
 
 
