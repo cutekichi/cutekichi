@@ -23,7 +23,7 @@ $\color{rgba(220, 144, 250, 0.8)}{\textsf{Kokichi and Bonkichi IRL/kinnie}}$
 $\color{rgba(220, 144, 250, 0.8)}{\textsf{Shuichi/Kagehara , Rantaro/Kuro yume!!}}$
 
 <p align="center">
-୧‿̩͙ ˖︵ ꕀ⠀ ꩜⠀ ꕀ ︵˖ ‿̩͙୨
+$\color{rgba(214, 185, 255, 0.72)}{\textsf{୧‿̩͙ ˖︵ ꕀ⠀ ꩜⠀ ꕀ ︵˖ ‿̩͙୨}}$
  
 <p align="center">
 $\color{rgba(220, 144, 250, 0.8)}{\textsf{W2I ALWAYS!!! i am usually offtab so i may not respond in time or not see your message at all. C+H is always welcomed too!!}}$
