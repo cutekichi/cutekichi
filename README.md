@@ -1,9 +1,9 @@
  # ᐡ ᐧ ﻌ ᐧ ᐡ
 
 <p align="center">
-<img width="457" height="329" alt="image" src="https://github.com/user-attachments/assets/f1f3b919-4a68-4be9-9be0-e1e283125cea" />
-<p align="center">
-<img width="500" height="50" alt="image" src="http://i748.photobucket.com/albums/xx122/luuuh/divisorias/barinhas29.gif" />
+<img width="457" height="329" alt="image" src="<img width="594" height="420" alt="05bf0d9d4cc72606f2f751a6e52bf7a3-removebg-preview" src="https://github.com/user-attachments/assets/61580e85-8f5c-40b7-9a7a-071a00669343" />
+" />
+
 
 
 <div align="center">
