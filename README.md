@@ -7,7 +7,7 @@
 
 <div align="center">
 
-୭˚. 𓂃 [strawp] ⸝⸝ [carrd](https://angellkichi.carrd.co) ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [prnscc](https://pronouns.cc/@puppkichi) ⸝⸝ [ata](https://foxkichi.atabook.org/) .ᐟ.ᐟ
+୭˚. 𓂃 [strawp] ⸝⸝ [carrd](https://angellkichi.carrd.co) ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [ata](https://foxkichi.atabook.org/) .ᐟ.ᐟ
 </div>
 
 
