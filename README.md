@@ -1,5 +1,5 @@
 <p align="center">
-<img height="327" alt="tumblr_d6c1eeb3c26bb8a5532b6bf6691a1699_6db606e3_2048" src="https://github.com/user-attachments/assets/007a96db-7791-4483-be76-c2a6f8a42d4b" />
+<img width="540" height="184" alt="tumblr_de00d3abf1bd1d522de28cb49a583e2e_40d24fe7_540" src="https://github.com/user-attachments/assets/e872673c-2e95-4cd5-8043-27b2cf9e50e5" />
 <p align="center">
 <img width="470" height="420" alt="JlZWXQB" src="https://github.com/user-attachments/assets/06fc8639-12c4-4793-aefe-aa9489c8742a" />
 
@@ -35,5 +35,6 @@ $\color{rgba(220, 144, 250, 0.8)}{\textsf{W2I ALWAYS!!! i am usually offtab so i
 <p align="center">
 $\color{rgba(220, 144, 250, 0.8)}{\textsf{ships are welcomed to interact! oumeno + oumota dni.}}$
 <p align="center">
-<img height="327" alt="tumblr_d6c1eeb3c26bb8a5532b6bf6691a1699_6db606e3_2048" src="https://github.com/user-attachments/assets/007a96db-7791-4483-be76-c2a6f8a42d4b" />
+<img width="540" height="86" alt="tumblr_4ae20255f62e2c5f725a15dcf0dedbab_890cbc3f_540" src="https://github.com/user-attachments/assets/db7e3c71-18b4-439b-85c9-5a8863ad85c2" />
+
 
