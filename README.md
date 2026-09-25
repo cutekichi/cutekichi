@@ -35,5 +35,6 @@ $\color{rgba(220, 144, 250, 0.8)}{\textsf{W2I ALWAYS!!! i am usually offtab so i
 <p align="center">
 $\color{rgba(220, 144, 250, 0.8)}{\textsf{ships are welcomed to interact! oumeno + oumota dni.}}$
 <p align="center">
-<img width="540" height="124" alt="tumblr_089b3c58e3510c0f0aec11c8f2a15981_c569c38f_540" src="https://github.com/user-attachments/assets/47f0cf3c-79d0-4a8c-a372-128a42b416fe" />
+<img width="400" height="27" alt="tumblr_9a55b233c9119fb02338c2117d882364_4723ebf5_400" src="https://github.com/user-attachments/assets/8cece3e2-07b8-42b5-9cfa-d32ff913b65c" />
+
 
