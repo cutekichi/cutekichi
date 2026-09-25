@@ -7,12 +7,12 @@
 
 <div align="center">
 
-୭˚. 𓂃 [strawp] ⸝⸝ [carrd](https://angellkichi.carrd.co) ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [ata](https://foxkichi.atabook.org/) .ᐟ.ᐟ
+୭˚. 𓂃 [strawp] ⸝⸝ [carrd] ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [ata](https://foxkichi.atabook.org/) .ᐟ.ᐟ
 </div>
 
 
 <p align="center">
-strawpage is a work in progress.. (ó﹏ò｡)
+strawpage and card is a work in progress.. (ó﹏ò｡)
 
 
 
