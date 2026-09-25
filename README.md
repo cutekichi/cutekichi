@@ -1,7 +1,7 @@
 <p align="center">
 <img height="327" alt="tumblr_d6c1eeb3c26bb8a5532b6bf6691a1699_6db606e3_2048" src="https://github.com/user-attachments/assets/007a96db-7791-4483-be76-c2a6f8a42d4b" />
 <p align="center">
-<img width="440" height="320" alt="JlZWXQB" src="https://github.com/user-attachments/assets/06fc8639-12c4-4793-aefe-aa9489c8742a" />
+<img width="470" height="420" alt="JlZWXQB" src="https://github.com/user-attachments/assets/06fc8639-12c4-4793-aefe-aa9489c8742a" />
 
 
 
