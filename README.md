@@ -33,7 +33,7 @@ $\color{rgba(220, 144, 250, 0.8)}{\textsf{W2I ALWAYS!!! i am usually offtab so i
  
  
 <p align="center">
-$\color{rgba(220, 144, 250, 0.8)}{\textsf{ships can interact, oumeno dni.}}$
+$\color{rgba(220, 144, 250, 0.8)}{\textsf{ships are welcomed to interact! oumeno + oumota dni.}}$
 <p align="center">
 <img height="327" alt="tumblr_d6c1eeb3c26bb8a5532b6bf6691a1699_6db606e3_2048" src="https://github.com/user-attachments/assets/007a96db-7791-4483-be76-c2a6f8a42d4b" />
 
