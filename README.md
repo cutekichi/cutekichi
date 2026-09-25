@@ -5,6 +5,8 @@
 
 
 
+https://imgur.com/a/YOGCUX2#JlZWXQB
+
 <div align="center">
 
 ୭˚. 𓂃 [strawp] ⸝⸝ [carrd] ⸝⸝ [prns](https://en.pronouns.page/@cutekichi) ⸝⸝ [ata](https://foxkichi.atabook.org/) .ᐟ.ᐟ
