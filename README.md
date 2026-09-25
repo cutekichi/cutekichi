@@ -1,5 +1,4 @@
-<p align="center">
-<img width="540" height="124" alt="tumblr_5e9b0561e8b9e542b0e18860a8f829ee_98b6e97f_540" src="https://github.com/user-attachments/assets/2167cd3a-2e5b-490d-85c9-d509ddb73725" />
+
 
 <p align="center">
 <img width="470" height="420" alt="JlZWXQB" src="https://github.com/user-attachments/assets/06fc8639-12c4-4793-aefe-aa9489c8742a" />
